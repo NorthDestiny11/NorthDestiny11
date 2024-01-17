@@ -1,5 +1,3 @@
-- 👋 Hi, I’m @NorthDestiny11
-- 👀 I’m interested in Computer Science & Electrical Engineering
-- 🌱 I’m currently learning Python & Assembly
-- 💞️ I’m looking to collaborate on Integrated Circuit Design, Blender Ideas, Coding
-- 📫 How to reach me ... Don't
+I'm @NorthDestiny11.
+Don't reach me. 💀
+🍃

@@ -1,3 +1,1 @@
-- I'm @NorthDestiny11.
-- Don't reach me. 💀
-- 🍃
+- I'm @NorthDestiny11 🍃
